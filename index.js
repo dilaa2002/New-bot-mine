@@ -4,8 +4,8 @@
 
 // KHAN-MD version 5.0 ❤️
 
-// Thanks For Chosing KHAN MD 🔥
+// Thanks For Chosing R.D - TECHNICAL 🔥
 
-// Made with ♥️ By JawadTech 
+// Made with ♥️ By R.D - TECHNICAL 
 
-// Powered By JawadTechX KHAN-MD 2025 🚀
+// Powered By R.D - TECHNICAL 2025 🚀
